@@ -1,1 +1,1 @@
-# thanuja.github.io
+http://thanuja.github.io
